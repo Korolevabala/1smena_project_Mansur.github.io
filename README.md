@@ -1,1 +1,0 @@
-# 1smena_project_Mansur.github.io
